@@ -1,0 +1,2 @@
+# Kinemaja-rinore
+kinemajaonline
